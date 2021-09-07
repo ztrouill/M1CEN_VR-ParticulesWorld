@@ -9,6 +9,8 @@ It's a contemplative and dreamlike work offering a break from the real world, im
 
 The music was made by Antoine Pittionni in accordance with the animations.	
 
+With : Antoine Pittilonni, Marie Bardelot, Lauria Alaoua et Artem Arutiunian
+
 Watch here : https://vimeo.com/598903152
 
 ![illu01](/Assets/ScreenShots/1.png)
